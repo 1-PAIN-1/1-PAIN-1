@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @1-PAIN-1
 - 👀 I’m interested in computer and programming
 - 🌱 I’m currently learning in 9 class
-- 💞️ I’m looking to collaborate on nothing just study
+- 💞️ I’m looking to collaborate on nothing just study. Maybe someone can help me on studding
 - 📫 How to reach me e-mail lolcoffee48@gmail.com 
 
 <!---
